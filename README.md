@@ -10,3 +10,9 @@ I honestly want to build anything that solves a problem and is profitable
 3. What skill do I want to improve? 
 Working with a team and debugging skills
 
+2. What projects would I like to build? 
+I honestly want to build anything that solves a problem and is profitable 
+
+3. What skill do I want to improve? 
+Working with a team and debugging skills
+ I alsoe want to live 
